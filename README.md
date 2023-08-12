@@ -1,1 +1,2 @@
 # Other Credly Badges Earned
+![]()
