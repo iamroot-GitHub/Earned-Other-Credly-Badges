@@ -1,1 +1,1 @@
-# Earned-Other-Credly-Badges
+Other Credly Badges Earned
